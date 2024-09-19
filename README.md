@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programation
 - 💞️ I’m looking to collaborate on english and logic
 - 📫 How to reach me popzanell in Instagram
-- 😄 Pronouns: Popzanella
+- 😄 Pronouns: He
 - ⚡ Fun fact: im not interessing in learn programation i think
 
 <!---
