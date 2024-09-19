@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @popzanella
+- 👋 Hi, I’m popzanella
 - 👀 I’m interested in learn english
 - 🌱 I’m currently learning programation
 - 💞️ I’m looking to collaborate on english and logic
